@@ -25,4 +25,4 @@ ah yeaaaah
 ### i also love makling new frienddsssss !!!!!!!!! interact w me i dont bite.,^_^^^!!!  
 ### I LUV DRAWING!!!!!!!!!!!!! i luivvvvveee drawinggg so muchh oghm yogd
 
-### you pull me closer i push you away... you tell me its okay, i cant help but feel the paaaaaaiiiiinnnn lyr
+you pull me closer i push you away... you tell me its okay, i cant help but feel the paaaaaaiiiiinnnn lyr
