@@ -17,7 +17,7 @@ ah yeaaaah
 # HAI call me bomboclat !
 ### i go by he/him mainly but i got neos, ask for them if we r close ^_^
 ### you may call me bombo, bomboclapclap or whatever else nickname you got for me if we are close
-### close firends are mpreg(chuu, rena, searchpartysys/kestrel anbd skurfic!/thetrevormythossys!!!!!
+### close firends are mpreg(chuu, wren, searchpartysys/kestrel anbd skurfic!/thetrevormythossys!!!!!
 ### uhmm im like lowk sensetive soplease be VERY careful w what you say to me.
 ### closest to core w xamp! yay you can try ask me anyting core and xamp might know the answer to!^_^ !!
 ### i like any Mmusic! i listen mainly to metal/rock and wweezer ^_^!!!!!!!!
@@ -26,5 +26,6 @@ ah yeaaaah
 ### sometimes using tonetags... but not often... tell me if you really need them! im really understandign and nice heh
 ### i also love makling new frienddsssss !!!!!!!!! interact w me i dont bite.,^_^^^!!!  
 ### I LUV DRAWING!!!!!!!!!!!!! i luivvvvveee drawinggg so muchh oghm yogd
+### i hang around docks safe server 1# or im w friends or playing fts lawl
 
 you pull me closer i push you away... you tell me its okay, i cant help but feel the paaaaaaiiiiinnnn lyr
