@@ -8,7 +8,7 @@ i lowk wanna draw the gh profile picture but im art blocked so enjoy theplace ho
 
 wow chat look you can see what music i listen to rn (unless its not me fronting bruh)
 
-<img src="https://media1.tenor.com/m/goY0VJNhQSIAAAAd/bleh-bleh-cat.gif">
+<img src="https://media1.tenor.com/m/goY0VJNhQSIAAAAd/bleh-bleh-cat.gif" width="340" height="140">
 
 ok wait i forgot what i was supposed to put here uhm
 ah yeaaaah
