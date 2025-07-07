@@ -19,7 +19,7 @@ ah yeaaaah
 ### you may call me bombo, bomboclapclap or whatever else nickname you got for me if we are close
 ### close firends are mpreg(chuu, wren, searchpartysys/kestrel anbd skurfic!/thetrevormythossys!!!!!
 ### uhmm im like lowk sensetive soplease be VERY careful w what you say to me.
-### closest to core w xamp! yay you can try ask me anyting core and xamp might know the answer to!^_^ !!
+### closest to sammy w xamp! yay you can try ask me anyting sammy and xamp might know the answer to!^_^ !!
 ### i like any Mmusic! i listen mainly to metal/rock and wweezer ^_^!!!!!!!!
 ### favourite bands/musicians areee uhm little boodang, weezer, djo, korn, rammstein , kmfdm and slipknot!!!!! maybe i be forgetting some rn but i fw those heavy!
 ### i dont car about grammar. my typos are my personality!!joke
