@@ -17,7 +17,7 @@ ah yeaaaah
 # HAI call me bomboclat !
 ### i go by he/him mainly but i got neos, ask for them if we r close ^_^
 ### you may call me bombo, bomboclapclap or whatever else nickname you got for me if we are close
-### close firends are mpreg(chuu, wren, searchpartysys/kestrel anbd skurfic!/thetrevormythossys!!!!!
+### close firends are mpreg(chuu, wren, solaris, ollie and searchpartysys/kestrel !!!
 ### uhmm im like lowk sensetive soplease be VERY careful w what you say to me.
 ### closest to sammy w xamp! yay you can try ask me anyting sammy and xamp might know the answer to!^_^ !!
 ### i like any Mmusic! i listen mainly to metal/rock and wweezer ^_^!!!!!!!!
