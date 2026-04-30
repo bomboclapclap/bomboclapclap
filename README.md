@@ -1,6 +1,7 @@
 <div align="center">
 
-i lowk dont wanna draw our pfp ANYMORE so enjoy jessepinkman ! he gives me some kind of security dont ask how or why oke? - someone else BUT not bomboclat writing ts
+be my friend . /threat . (joke obviously...)
+interact with me . im not mean ;_;
 
 ![](https://komarev.com/ghpvc/?username=bomboclapclap&color=0099d3&abbreviated=true&style=flat-square&label=+sigmas+collected+)
 
@@ -10,16 +11,13 @@ wow chat look you can see what music i listen to rn (unless its not me fronting 
 
 <img src="https://media1.tenor.com/m/goY0VJNhQSIAAAAd/bleh-bleh-cat.gif" width="340" height="140">
 
-ok wait i forgot what i was supposed to put here uhm
-ah yeaaaah
-
 
 # HAI call me bomboclat !
 ### i go by he/him mainly but i got neos, ask for them if we r close ^_^
 ### you may call me bombo, bomboclapclap or whatever else nickname you got for me if we are close
-### close firends are mpreg(chuu, wren, solaris, ollie and searchpartysys/kestrel !!!
+### close firends are mpreg(chuu, wren, solaris and searchpartysys/kestrel !!!
 ### uhmm im like lowk sensetive soplease be VERY careful w what you say to me.
-### closest to sammy w xamp! yay you can try ask me anyting sammy and xamp might know the answer to!^_^ !!
+
 ### i like any Mmusic! i listen mainly to metal/rock and wweezer ^_^!!!!!!!!
 ### favourite bands/musicians areee uhm little boodang, weezer, djo, korn, rammstein , kmfdm and slipknot!!!!! maybe i be forgetting some rn but i fw those heavy!
 ### i dont car about grammar. my typos are my personality!!joke
