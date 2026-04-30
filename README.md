@@ -1,6 +1,6 @@
 <div align="center">
 
-i lowk wanna draw the gh profile picture but im art blocked so enjoy theplace holder
+i lowk dont wanna draw our pfp ANYMORE so enjoy jessepinkman ! he gives me some kind of security dont ask how or why oke? - someone else BUT not bomboclat writing ts
 
 ![](https://komarev.com/ghpvc/?username=bomboclapclap&color=0099d3&abbreviated=true&style=flat-square&label=+sigmas+collected+)
 
