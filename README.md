@@ -1,18 +1,12 @@
 <div align="center">
 
-be my friend . /threat . (joke obviously...)
-interact with me . im not mean ;_;
+<img src="https://files.catbox.moe/e7c03o.png"> 
 
 ![](https://komarev.com/ghpvc/?username=bomboclapclap&color=0099d3&abbreviated=true&style=flat-square&label=+sigmas+collected+)
-
-[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=hvvqvjs480cxuz08mw5u083li&cover_image=true&theme=natemoo-re&background_color=121212&interchange=true&bar_color=53b14f&bar_color_cover=true)](https://spotify-github-profile.kittinanx.com/api/view?uid=hvvqvjs480cxuz08mw5u083li&redirect=true)
-
-wow chat look you can see what music i listen to rn (unless its not me fronting bruh)
+# HAI call me bomboclat !
 
 <img src="https://media1.tenor.com/m/goY0VJNhQSIAAAAd/bleh-bleh-cat.gif" width="340" height="140">
 
-
-# HAI call me bomboclat !
 ### i go by he/him mainly but i got neos, ask for them if we r close ^_^
 ### you may call me bombo, bomboclapclap or whatever else nickname you got for me if we are close
 ### close firends are mpreg(chuu, wren, solaris and searchpartysys/kestrel !!!
@@ -27,3 +21,5 @@ wow chat look you can see what music i listen to rn (unless its not me fronting 
 ### i hang around docks safe server 1# or im w friends or playing fts lawl
 
 you pull me closer i push you away... you tell me its okay, i cant help but feel the paaaaaaiiiiinnnn lyr
+
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=hvvqvjs480cxuz08mw5u083li&cover_image=true&theme=natemoo-re&background_color=121212&interchange=true&bar_color=53b14f&bar_color_cover=true)](https://spotify-github-profile.kittinanx.com/api/view?uid=hvvqvjs480cxuz08mw5u083li&redirect=true)
