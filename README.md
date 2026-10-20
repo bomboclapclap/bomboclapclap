@@ -9,7 +9,6 @@
 
 ### i go by he/him mainly but i got neos, ask for them if we r close ^_^
 ### you may call me bombo, bomboclapclap or whatever else nickname you got for me if we are close
-### close firends are mpreg(chuu, wren, solaris and searchpartysys/kestrel !!!
 ### uhmm im like lowk sensetive soplease be VERY careful w what you say to me.
 
 ### i like any Mmusic! i listen mainly to metal/rock and wweezer ^_^!!!!!!!!
