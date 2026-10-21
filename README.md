@@ -19,6 +19,7 @@
 ### I LUV DRAWING!!!!!!!!!!!!! i luivvvvveee drawinggg so muchh oghm yogd
 ### i hang around docks safe server 1# or im w friends or playing fts lawl
 i dont like disclosing my system or the fact i am a alter, but jsut you know i am a alter. bodily i am not 17y. thank you.
+but i think its funny i keep getting triggered to front THRU LADY THE GAGA . WSHATEVs
 
 you pull me closer i push you away... you tell me its okay, i cant help but feel the paaaaaaiiiiinnnn lyr
 
