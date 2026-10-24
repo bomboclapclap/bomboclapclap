@@ -3,8 +3,8 @@
 
 <img src="https://www.hunter-collectors.de/images/product_images/info_images/93140_BreakingBadS2_JessePinkman_POP_render_frontview_glam-WEB.png">
 
-　　bomboclat or bombo ^_^　　He/Him　　18y　　osdd alter
-　　interact with caution　　below 16y dni　　ambivert　　looking for friends ;w;　　geek computer nerd　　emoticon user >w<　　i love to draw and play　　skibidi 67 fortnite　　jesse pinkman enthuiast　　breaking bad fan　　lady gagas music triggers me positively　　i love signing atabooks xwx
+　　bombo or stan ^_^　　He/Him　　18y　　osdd alter(s)
+　　interact with caution　　below 16y dni　　ambivert　　looking for friends ;w;　　geek computer nerd　　emoticon user >w<　　i love to draw and play　　skibidi 67 fortnite　　jesse pinkman enthuiast　　breaking bad fan　　lady gagas music triggers me positively　　i love signing atabooks xwx　　sharing this account with stan
 
 　　interests　　mob psycho 100　　breaking bad　　south park　　villainous 2017　　pokémon ultra moon　　lady gaga　　kmfdm　　korn　　more uncounted
 
