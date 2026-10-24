@@ -19,4 +19,4 @@
 <img src="https://64.media.tumblr.com/fb9762dc76537862186d989ca319141b/91445faef06d6004-7c/s100x200/2959130c6274feb00a6b93143d3ea1f75dd11f25.pnj">
 
 
-　　[stan or stanley](https://rentry.co/stan-ley-marsh)　　17y　　he him　　osdd alter　　introvert　　probably on dniuf　　i like weezer　　sharing the account with bomboclat　　　　why bother? it's gonna hurt me.　　
+　　[stan or stanley](https://rentry.co/stan-ley-marsh)　　17y　　he him　　osdd alter　　introvert　　passive agressive　　i have heavy mood swings　　probably on dniuf　　i like weezer　　sharing the account with bomboclat　　　　why bother? it's gonna hurt me.　　
